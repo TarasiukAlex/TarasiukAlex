@@ -8,4 +8,4 @@
 - 📫 How to reach me on LinkedIn: https://www.linkedin.com/in/alexandertarasiuk
 - 💻 Codewars https://www.codewars.com/users/AlexTarasiuk
 - ✨ Fun fact: If you type the word "askew" into the Google search box, the entire page will tilt slightly ヅ
-                                                                                                ʞnᴉsɐɹɐꓕxǝʅ∀
+-                                                                                      ʞnᴉsɐɹɐꓕxǝʅ∀
